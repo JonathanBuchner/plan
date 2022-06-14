@@ -1,5 +1,5 @@
 # Spider Meadows 2022
-*Site is public. Links password protectect.*
+*Site is public. Links password protected.*
 
 ## Links
 - Excel: [Gear, itinerary, questions ](https://buchnerfamilycom.sharepoint.com/:x:/g/EZtADW1tT4dJjRaDqz5IcWQBX3YYAoHHYcDG1HGbHLTVbQ?e=7Mk53N)
