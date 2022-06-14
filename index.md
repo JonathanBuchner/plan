@@ -2,7 +2,7 @@
 *Site is public. Links password protected.*
 
 ## Links
-- Excel: [Gear, itinerary, questions ](https://buchnerfamilycom.sharepoint.com/:x:/g/EZtADW1tT4dJjRaDqz5IcWQBX3YYAoHHYcDG1HGbHLTVbQ?e=7Mk53N)
+- Excel: [Gear, itinerary, questions ](https://buchnerfamilycom.sharepoint.com/:x:/g/EZtADW1tT4dJjRaDqz5IcWQBX3YYAoHHYcDG1HGbHLTVbQ?e=7Mk53N) - There are four excel sheets that are part of this excel document.
 - Word: [Outfitter questions](https://buchnerfamilycom.sharepoint.com/:w:/g/ESuTTEixMvRCmY3jBDCQCxYBVd54Vm6Ji26DyNGuCKnhQw?e=6Vuypq)
 - Washington Trail Association / More information:  [Spider Meadows / Phelps Basin](https://www.wta.org/go-hiking/hikes/spider-meadows)
 
@@ -71,10 +71,10 @@ If rain, Jonathan will bring at least one 10 by 14ft shelter to eat / play under
 - [National Weather Service forecast](https://forecast.weather.gov/MapClick.php?lon=-120.8502960205078&lat=48.13907212866508#.YqfM4XbMISE) for -120.8502960205078 & 8.13907212866508
 
 ## Questions
-Ask them all.  Some have been to the area recently, others have not. [Gear & Itenery & Questions](https://buchnerfamilycom.sharepoint.com/:x:/g/EZtADW1tT4dJjRaDqz5IcWQBX3YYAoHHYcDG1HGbHLTVbQ?e=7Mk53N)
+Ask them all.  Some have been to the area recently, others have not. [Gear & Itenery & Questions](https://buchnerfamilycom.sharepoint.com/:x:/g/EZtADW1tT4dJjRaDqz5IcWQBX3YYAoHHYcDG1HGbHLTVbQ?e=7Mk53N).
 
 ## Fun facts
-- Derek was younger than Alpen on his first trip to Spider Meadows.
+- Starting at spider meadows, the Buchner family circumnavigated fortress mountain on a seven-day backpacking trip 
 - On the other side of Spider Pass is Lyman Glacier, named after the same professor that Jonathan's freshmen year dorm was named after.
 - David wrote an introduction to a reprinted version of 100 Hikes Glacier Peak Region by Ira Springs & Harvey Manning.  Before the internets this was the guidebook for visiting Spider Meadows.
 
