@@ -1,25 +1,34 @@
 # Spider Meadows 2022
+*This site and all links below have been made publically accessible.*
+
 
 ## Links
-- [Gear & Itenery]()
-- [Outfitter questions]()
+- [Gear & Itenery & Questions ](https://buchnerfamilycom.sharepoint.com/:x:/g/EZtADW1tT4dJjRaDqz5IcWQBX3YYAoHHYcDG1HGbHLTVbQ?e=7Mk53N)
+- [Outfitter questions](https://buchnerfamilycom.sharepoint.com/:w:/g/ESuTTEixMvRCmY3jBDCQCxYBVd54Vm6Ji26DyNGuCKnhQw?e=6Vuypq)
 - WTA [Spider Meadows / Phelps Basin](https://www.wta.org/go-hiking/hikes/spider-meadows)
-
 
 ## Location
 Spider Meadows is located above Highway 2 and east of Glacier Peak.
 ![Spider Meadows Location](./img/spider-meadows-location.png)
 
 ## Gear
-I shared an excel file that lists an itenery and gear.  Anyone can add additional items/row and comments.  *Please don't delete rows.*
-
+I shared an excel file that lists an itenery and gear.  **Anyone can add additional items/rows and comments**.  *Please don't delete rows.* [Gear & Itenery](https://buchnerfamilycom.sharepoint.com/:x:/g/EZtADW1tT4dJjRaDqz5IcWQBX3YYAoHHYcDG1HGbHLTVbQ?e=7Mk53N).
 ### Group Gear
-The *Group Gear* sheet is for anyone to mark that they are bringing an item that they are willing to share.  Its simpler and easier if don't have five big first aid kits, five stoves, and five water pumps.  Hopefully we will quickly have a chance to discuss gear on a call.  If you promise to bring, don't forget!
+The *Group Gear* sheet is for anyone to mark they are bringing an item that they are willing to share.  Its simpler and easier if don't have five big first aid kits, five stoves, and five water pumps.  If you promise to bring, don't forget!
 
 ### Individual Gear List
 The *Individual Gear* sheet lists of items one **may** want to bring. Helpful if you haven't overnight backpacked in a while. 
 
-##
+## Outfitter Coordinating
+See the above sheet for questions and answer to questions for the outfitter.
+[Outfitter questions](https://buchnerfamilycom.sharepoint.com/:w:/g/ESuTTEixMvRCmY3jBDCQCxYBVd54Vm6Ji26DyNGuCKnhQw?e=6Vuypq).
+
+## Itenerary
+The first sheet in the share excel file above will contain an Itenerary.  The itenerary will help for:
+- Confirming our coordination and meet times with the outfitters. 
+- Planning is choosing between overnighting and car camping.
+  - E.g. on Tuesday overnighters will probably wait for the outfitters to arrive, hike back to the car, and then travel home which may take much longer than expected.
+- Make sure if there are non overnighters everyone is able to connect at the right time on Monday.
 
 ##  Trailhead
 Phelps Creek Trailhead is 3.5h to 4h drive [from Seattle](https://www.google.com/maps/dir/Columbia+City,+Seattle,+WA/Phelps+Creek+Trailhead,+Forest+Road+6200,+Leavenworth,+WA+98826/@47.6254291,-122.5582082,8z/data=!3m1!4b1!4m18!4m17!1m5!1m1!1s0x54906a0c5aa68bb1:0xfa602b48f2068cf8!2m2!1d-122.2869617!2d47.5607961!1m5!1m1!1s0x549b3d4d88aec98d:0x9f81bfbd3b7ab146!2m2!1d-120.835!2d48.0832!2m3!6e0!7e2!8j1655033700!3e0) and a 6h to 7.5h drive [from Portland](https://www.google.com/maps/dir/Portland,+OR/Phelps+Creek+Trailhead,+Forest+Road+6200,+Leavenworth,+WA+98826/@46.7809729,-123.9126411,7z/data=!3m1!4b1!4m18!4m17!1m5!1m1!1s0x54950b0b7da97427:0x1c36b9e6f6d18591!2m2!1d-122.6783853!2d45.515232!1m5!1m1!1s0x549b3d4d88aec98d:0x9f81bfbd3b7ab146!2m2!1d-120.835!2d48.0832!2m3!6e0!7e2!8j1655033700!3e0).  You turn off of Highway 2 at Coles Corner onto 207 North (Lake Wenatchee Highway).
@@ -64,8 +73,13 @@ It's still snowing on occasion at 5000ft and the snowpack is 200% more than usua
 If rain, Jonathan will bring at least one 10 by 14ft shelter to eat / play under. There will be dry cook and play space.  Everyone would need rain gear, consider rain pant option as high meadow grass can soak legs & socks, especially for kidos.
 - [National Weather Service forcast](https://forecast.weather.gov/MapClick.php?lon=-120.8502960205078&lat=48.13907212866508#.YqfM4XbMISE) for -120.8502960205078 & 8.13907212866508
 
+## Questions
+Ask them all.  Some have been to the area recently, others have not. [Gear & Itenery & Questions](https://buchnerfamilycom.sharepoint.com/:x:/g/EZtADW1tT4dJjRaDqz5IcWQBX3YYAoHHYcDG1HGbHLTVbQ?e=7Mk53N)
 
 ## Fun facts
 - Derek was younger than Alpen on his first trip to Spider Meadows.
 - On the other side of Spider Pass is Lyman Glacier, named after the same professor that Jonathan's freshmen year dorm was named after.
 - David wrote an introduction to a reprinted version of 100 Hikes Glacier Peak Region by Ira Springs & Harvey Manning.  Before the internets this was the guide book for visiting Spider Meadows.
+
+## Derek Event
+I imagine there will be an opportunity for everyone to speak, but if you discover you have an idea or preference for Monday to work a certain way, share it with Bree and others! 
