@@ -4,7 +4,7 @@
 ## Links
 - Excel: [Gear, itinerary, questions ](https://buchnerfamilycom.sharepoint.com/:x:/g/EZtADW1tT4dJjRaDqz5IcWQBX3YYAoHHYcDG1HGbHLTVbQ?e=7Mk53N)
 - Word: [Outfitter questions](https://buchnerfamilycom.sharepoint.com/:w:/g/ESuTTEixMvRCmY3jBDCQCxYBVd54Vm6Ji26DyNGuCKnhQw?e=6Vuypq)
-- WTA:  [Spider Meadows / Phelps Basin](https://www.wta.org/go-hiking/hikes/spider-meadows)
+- Washington Trail Association / More information:  [Spider Meadows / Phelps Basin](https://www.wta.org/go-hiking/hikes/spider-meadows)
 
 ## Location
 Spider Meadows is located above Highway 2 and east of Glacier Peak.
@@ -23,20 +23,18 @@ Above is a word document with questions for the outfitter.
 [Outfitter questions](https://buchnerfamilycom.sharepoint.com/:w:/g/ESuTTEixMvRCmY3jBDCQCxYBVd54Vm6Ji26DyNGuCKnhQw?e=6Vuypq).
 
 ## Itinerary
-*Coming Soon.* In the shared excel file is a shortened itinerary sheet to help:
-- Confirm coordination with outfitters. 
-- Help choose between overnighting and car camping.
-  - E.g. on Tuesday, overnighters will probably wait for the outfitters to arrive, hike back to the car, and then travel home which may make it into a late evening.
-- Make sure if there are non-overnighters everyone will connect at the right time on Monday.
+*Coming Soon.* In the shared excel file will be a shortened itinerary sheet including meet times with outfitters, etc.
 
 ##  Drive
 Phelps Creek Trailhead is 3.5h to 4h drive [from Seattle](https://www.google.com/maps/dir/Columbia+City,+Seattle,+WA/Phelps+Creek+Trailhead,+Forest+Road+6200,+Leavenworth,+WA+98826/@47.6254291,-122.5582082,8z/data=!3m1!4b1!4m18!4m17!1m5!1m1!1s0x54906a0c5aa68bb1:0xfa602b48f2068cf8!2m2!1d-122.2869617!2d47.5607961!1m5!1m1!1s0x549b3d4d88aec98d:0x9f81bfbd3b7ab146!2m2!1d-120.835!2d48.0832!2m3!6e0!7e2!8j1655033700!3e0) and a 6h to 7.5h drive [from Portland](https://www.google.com/maps/dir/Portland,+OR/Phelps+Creek+Trailhead,+Forest+Road+6200,+Leavenworth,+WA+98826/@46.7809729,-123.9126411,7z/data=!3m1!4b1!4m18!4m17!1m5!1m1!1s0x54950b0b7da97427:0x1c36b9e6f6d18591!2m2!1d-122.6783853!2d45.515232!1m5!1m1!1s0x549b3d4d88aec98d:0x9f81bfbd3b7ab146!2m2!1d-120.835!2d48.0832!2m3!6e0!7e2!8j1655033700!3e0).  You turn off Highway 2 at Coles Corner onto 207 North (Lake Wenatchee Highway).
 - After the Wenatchee River bridge, slight right onto Chiwawa Loop Road (1.3 mi)
 - Turn left onto Chiwawa River Rd (22.1 mi). **More than ten miles is a slow dirt road.  No low clearance cars**
-- Slight right onto Phelps Creek Forest Service 6211 Rd/Phelps Creek Trailhead Rd (2.4 mi)
+- Slight right onto Phelps Creek Forest Service 6211 Rd/Phelps Creek Trailhead Rd (2.4 mi).  
+
+Parking is at the end of the road.  The stock parking turn out is at least 1/4th mile _before the trailhead._  We will meet and drop gear for outfitter at stock area (and confirm later).
 
 ### Trailhead
-_**No** NW Forest Pass required._ (double check?) Passes are required at trailheads adjacent to U.S. Forest Service land with trails leading into the national parks.  No pass listed as required.  I believe no water nor bathroom at trailhead.
+_**No** NW Forest Pass required._ Passes are required at trailheads adjacent to U.S. Forest Service land with trails leading into the national parks.  No pass listed as required.  I believe no water nor bathroom at trailhead.
 
 ## Trail
 Starting at 3500ft you leave the Phelps Creek Trailhead and walk on the right of Phelps Creek for a gradual 5.5 mile walk to a meadow opening below 4800ft.  The trail continues up the basin through Spider Pass (5300ft).  There are several creeks to cross with the largest being Leroy creek which is a delicate crossing without waterproof boots.  
@@ -58,10 +56,10 @@ Crowded area, many camps, which fill up on Fri/Sat.  All our tents may not fit r
 Even with the snow recently melted be ready with clothing to completely cover and prevent yourself from being bit, *especially for kids.*  
 
 ## Food
-As of 6/13 all parties are recommended to figure out there own snacks, drinks, breakfast, and lunches.  Jonathan is happy to organize bringing gnocchi (fried) and tortellini (a Derek backpacking favorite) if we want to organize a group dinner.
+Jonathan is happy to organize bringing gnocchi (fried) and tortellini (a Derek backpacking favorite) if we want to organize a group dinner.
 
 ## Bears & Rodents
-Food will need to be hung or in bear canisters, including to protect against marmots & mice.  We have plenty of canisters + hang options / no need to purchase.
+Food will need to be hung or in a bear canisters (including to protect against marmots & mice).  We probably have enough bear canisters or other hanging options--(Jonathan, Marian, Bree, David all have a canister at minimum). Don't feel a need to purchase anything if you don't have a bear canister.
 
 ## Weather
 ### Snow
