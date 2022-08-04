@@ -9,13 +9,15 @@ Fill out the excel sheet to let us know you are coming and what you may bring:
 
 Optionally stay Friday night.  I will trying to nag us a good spot.  Rafting is on Saturday. Sunday is an unknown but I want to get back out on the river.  *The moon party is Saturday night.*
 
+![](./img/location.png)
 ## Where?
 Tieton.  Camping is probably [South Fork Tieton Dispersed Camping](https://goo.gl/maps/wPCtxpWSKfJeWwqn9).
+
 
 ## What's a Moon Party?
 We are going first to raft. 
 
-But similer to moon waning, our rivers are waning and low in water until the snow and rain fall later this year.  
+But similer to moon waning, our rivers now have less and less water until the snow and rain fall later this year.  
 
 If you are staying the night be prepared to purge something in the fire.  This may as simple as writing something you want to let go of on a piece of paper and throwing it in the fire.  Again the moon is waning and you too should let go of something.
 
@@ -28,7 +30,7 @@ Expect a chill, camp fire vibe, rather than a bumping party ;).  But got to them
 ## Who is invited?
 Anyone who is a friends with us (our guide class + our invites, etc.)--especially if they rafted with us this year!  Maybe it will be like four of us, maybe it will be like sixteen of us, let's make it a party! *Not prepared for more than like 20?*
 
-Please help coordinate through the excel sheet, especially to make sure we have enough spots in rafts.  We are trying to track down extra rafts.
+Please help coordinate through the excel sheet, especially to make sure we have enough spots in rafts.  **We are trying to count the amount of rafts we will have.**
 
 
 ## Activities
