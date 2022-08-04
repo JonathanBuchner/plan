@@ -1,10 +1,12 @@
 ![Full moon header](./img/moon-header.jpg)
 # Tieton Moon Party
-This trip should be a different night than the annual Tieton guide party.  It's a moon party!  The full moon is Friday, September 9th and it will be the harvest moon.
+First we are rafting, and then a moon party Saturday night!
+
+This trip should be a different night than the annual Tieton guide party. The full moon is Friday, September 9th and it will be the harvest moon.  We are celebrating the brightness and it's change to a waning moon.
 
 Fill out the excel sheet to let us know you are coming and what you may bring: [Tieton Moony Party Excel Sheet](https://buchnerfamilycom.sharepoint.com/:x:/g/EQcmNxh0z2BFuNlQxiF84mAB0azQQEgsMuEITjt2lfktjQ?e=2fNcqu).
 
-**Still in the planning phase, maybe more to come**
+**Still in the planning phase, more to come**
 
 ## Dates
 **10/10/22 - 10/11/22**  - Saturday& Sunday
@@ -49,11 +51,12 @@ Add your food items to the [Excel sheet](https://buchnerfamilycom.sharepoint.com
 
 ## Needs
 
-### Jonathan will probably bring enough
+### Jonathan bringing moon party stuff
 - Glow sticks everything
 - Some face/body paint - *Probably enough for faces and arms, not like enough for people to paint their bodies*
 - We will try glow in the dark glitter
 - Two black lights (if we can find power)
+- Paper & pens
 - Fire pan
 
 ### Needs
