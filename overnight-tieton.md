@@ -51,7 +51,7 @@ Add your food items to the [Excel sheet](https://buchnerfamilycom.sharepoint.com
 
 ## Needs
 
-### Jonathan bringing moon party stuff
+### Provided moon party stuff
 - Glow sticks everything
 - Some face/body paint - *Probably enough for faces and arms, not like enough for people to paint their bodies*
 - We will try glow in the dark glitter
