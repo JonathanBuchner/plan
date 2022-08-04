@@ -5,4 +5,4 @@ url: https://jonathanbuchner.github.io/spider-meadows-2020/
 markdown: Kramdown
 plugins:
 - jekyll-remote-theme
-theme: jekyll-theme-midnight
+theme: jekyll-theme-slate
