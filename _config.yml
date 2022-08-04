@@ -1,8 +1,7 @@
 #Jekyll
-name: Spider Meadows 2022
-Description: Planning Buchner-Lovell-Henjum trip 2022. 
-url: https://jonathanbuchner.github.io/spider-meadows-2020/
+name: Tieton Moon Party 2022
+Description: Planning Tieton Moon Party 2022. 
+url: https://jonathanbuchner.github.io/rafting/overnight-tieton
 markdown: Kramdown
 plugins:
 - jekyll-remote-theme
-theme: jekyll-theme-slate
