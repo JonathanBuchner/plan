@@ -43,7 +43,7 @@ On Saturday **raft** and **camp** (and maybe **climb**).  Links:
 - Falcon: [Rock Climbing Washington](https://www.amazon.com/gp/product/1493039415/ref=ppx_yo_dt_b_asin_image_o00_s00?ie=UTF8&psc=1) (book)
 
 ## Dinner
-For dinner, let's all contribute to fajitas. Jonathan will bring chicken, wraps, cheese, salsa.  We can coordinate on the excel sheet.  Bring your own drinks and optionally extra.  Bring your own food for any meal other than dinner.
+For dinner, let's all contribute to fajitas.  We can coordinate on the excel sheet.  Bring your own drinks and optionally extra.  Bring your own food for any meal other than dinner.
 
 Add your food items to the [Excel sheet](https://buchnerfamilycom.sharepoint.com/:x:/g/EQcmNxh0z2BFuNlQxiF84mAB0azQQEgsMuEITjt2lfktjQ?e=2fNcqu).
 
