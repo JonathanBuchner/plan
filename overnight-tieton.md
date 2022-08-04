@@ -23,9 +23,9 @@ We are going first to raft.
 
 But similar to moon starting to wane, our rivers are waning now as there is less water until the snow and rain fall again.  
 
-If you are staying the night be prepared to purge something in the fire.  This may as simple as writing something you want to let go of on a piece of paper and throwing it in the fire.  The moon is waning and you too should let go of something.
+If you are staying the night, be prepared to purge something in the fire.  This may as simple as writing something you want to let go of on a piece of paper and throwing it in the fire.
 
-You recongnize the moon's brightness through wearing a glow stick, glow in the dark face paint, or glow in the dark glitter.  This will be available.
+We will recongnize the moon's brightness through wearing a glow stick, glow in the dark facepaint, or glow in the dark glitter.  This will be available.
 
 Anyone can bring anything else they feel a moon party needs.  Often moon parties include tarot card readings, crystals, or candles...and if you want that, you do you and you are supported!
 
