@@ -1,7 +1,0 @@
-#Jekyll
-name: Tieton Moon Party 2022
-Description: Planning Tieton Moon Party 2022. 
-url: https://jonathanbuchner.github.io/rafting/overnight-tieton
-markdown: Kramdown
-plugins:
-- jekyll-remote-theme
