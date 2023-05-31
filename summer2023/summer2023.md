@@ -6,7 +6,7 @@ Dates | Week | Saturday | Sunday| Notes
 Week 1 (3rd 4th) | (Friday) Eric and friends game night| Outdoor Day | Gear Day | 
 Week 2 (10th 11th) | | | DB & MH Bike ride | Mom said yes, muff in town
 Week 3 (17th 18th) | | Rafting/Climbing Kara | Alpen Care | On Sunday, parents attending celcus party.  We show up early.
-Week 4 (24th 25th) | | - | - | Ashley Birthday Weekend |
+Week 4 (24th 25th) | (Friday) Bday Drinks at Mtrs | Ashley boat and pizza | JB Open; Ashley probably with Steph | Ashley Birthday Weekend; |
 
 ### July
 Dates | Week | Saturday | Sunday| Notes
