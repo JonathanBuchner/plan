@@ -13,7 +13,7 @@ Dates | Week | Saturday | Sunday| Notes
 :--:| :--:| :--:| :--:| :--:| 
 Week 1 (1st 2nd) | | | | Date night weekend. 4th of July weekend. Probably 4 day weekend for AK.
 Week 2 (8th 9th) | | Planning? | Planning?  | Asking Sean & Devin about rafting or hiking? AK Possibly Chicago?
-Week 3 (15th 16th) | Rachel in town | Rachel Day |  | Ashley taking Rachel to airport Sunday morning. Jonathan may outdoor Sunday.
+Week 3 (15th 16th) | Rachel in town | Rachel Day | AK baby shower; | Ashley taking Rachel to airport Sunday morning. Jonathan may outdoor Sunday.
 Week 4 (22th 23th) | (Thurday) SY & AK concert  | Boys weekend  | Boys weekend  | Alpen dropped off on the 21st At Wallace Falls
 Week 5 (29th 30th) | | Planning? | Planning? | Possibly Alpen in Seattle this weekend. Asking Sean & Devin about rafting or hiking?
 
