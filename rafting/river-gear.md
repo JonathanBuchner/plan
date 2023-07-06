@@ -44,12 +44,14 @@ Rafting is still a lot of fun if you have the right gear.
 - Sunglasses
 - Drinks / Water
 - Change of clothes (for car)
-- (Optional) Dry bag for car
+- (Optional) Dry bag for river snacks
 - **Please do not bring your phone on the boat**
 
 ### Boat will have:
 - First aid kit
 - Rescue gear
 - Carabiners and straps to attach bags
+- A dry bag for snacks
+- (Optioanl) Cooler
 
 
