@@ -24,7 +24,7 @@ The Skagit river runs along highway 20 in the North Cascades.  The put in is ben
 ![washington map](./img/waskagitmap.png)
 
 ## Meet up
-We will meet at Ash Way Park-and-Ride lot which is just north of where I- 405 connects to I-5.  We will leave a few cars here, answer any questions, and make sure we have the right gear.  I recommend we then  stop at this [Safe Way](https://local.safeway.com/safeway/wa/everett/520-128th-st-sw.html?utm_source=G&utm_medium=Maps&utm_campaign=G+Places).  Starbucks is accross the streat).  
+We will meet at Ash Way Park-and-Ride lot which is just north of where I- 405 connects to I-5.  We can leave a car hear, answer any questions, and make sure we have the right gear.  I recommend we then  stop at this [Safe Way](https://local.safeway.com/safeway/wa/everett/520-128th-st-sw.html?utm_source=G&utm_medium=Maps&utm_campaign=G+Places).  Starbucks is accross the street).  
 
 **I would like to scout the S Bends rapid between mile 114.1 (upstream end and start of rapid) or mile 113.5 (downstream end) before we jump on the river.  We will also scout the take out as a group.** 
 
