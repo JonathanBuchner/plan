@@ -1,6 +1,0 @@
-#Jekyll
-name: River Info
-Description: River Information
-markdown: Kramdown
-plugins:
-- jekyll-remote-theme
