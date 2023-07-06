@@ -24,7 +24,7 @@ White water "booties" or water shoes with softer bottoms are ideal.  Old tennis 
 Being cold is unfun and dangerous! Most NW rivers during the summer are fed through melting snow and are cold.  New people to rafting underestimate the amount of clothing they would prefer.  I always recommend wearing a least a wetsuit.  Often more comfortable to wear shorts rather than bikini bottoms (but you do you).  If borrowing any clothing, always try it on once before arriving at the river. 
 
 #### 90's
-Remember clothing for sun protection.
+Remember clothing for sun protection.  Wetsuits can still be a nice to have.
 
 #### 80's
 Always recommend a wetsuite.
@@ -44,6 +44,7 @@ Rafting is still a lot of fun if you have the right gear.
 - Sunglasses
 - Drinks / Water
 - Change of clothes (for car)
+- (Optional) Dry bag for car
 - **Please do not bring your phone on the boat**
 
 ### Boat will have:
