@@ -1,0 +1,7 @@
+#Jekyll
+name: Skagit River Trips
+Description: Rafting the skagit river
+url: https://jonathanbuchner.github.io/plan/skagit/skagit07.23.md
+markdown: Kramdown
+plugins:
+- jekyll-remote-theme
