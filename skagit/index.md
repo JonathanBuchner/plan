@@ -29,21 +29,21 @@
 
 
 ## Where are we going? 
-The Skagit river runs along highway 20 in the North Cascades.  The put in is beneath newhalem dam.  Above the dam is Ross Lake.
+The Skagit river runs along highway 20 in the North Cascades.  The put in is beneath Newhalem Dam.  Above the dam is Ross Lake.
 ![washington map](./img/waskagitmap.png)
 
 ## Meet up
-We will meet at Ash Way Park-and-Ride lot which is just north of where I- 405 connects to I-5.  We can leave a car hear, answer any questions, and make sure we have the right gear.  I recommend we then  stop at this [Safe Way](https://local.safeway.com/safeway/wa/everett/520-128th-st-sw.html?utm_source=G&utm_medium=Maps&utm_campaign=G+Places).  Starbucks is accross the street).  
+We will meet at Ash Way Park-and-Ride lot which is just north of where I-405 connects to I-5.  We can leave a car here, answer any questions, and make sure we have the right gear.  I recommend we then  stop at this [Safe Way](https://local.safeway.com/safeway/wa/everett/520-128th-st-sw.html?utm_source=G&utm_medium=Maps&utm_campaign=G+Places).  Starbucks is accross the street).  
 
 **I would like to scout the S Bends rapid between mile 114.1 (upstream end and start of rapid) or mile 113.5 (downstream end) before we jump on the river.  We will also scout the take out as a group.** 
 
 ## Put In 
-Putin Goodell Creek Campground at mile 119.4 on Highway 20. There is a boat launch and information sign at the downstream end of the campground. A small beach and unload area provides a place for staging and is convenient for rafts. Ample parking is on the street adjacent to the launch area. Be sure to leave room for rafters to access the launch by parking cars outside the campground on the dirt road. For those who are curious as to what lies upstream, the parking area for the Gorge Powerhouse is at Highway 20 mile 120.9 but there is no formal river access.
+Putin Goodell Creek Campground is  at mile 119.4 on Highway 20. There is a boat launch and information sign at the downstream end of the campground. A small beach and unload area provides a place for staging and is convenient for rafts. Ample parking is on the street adjacent to the launch area. For those who are curious as to what lies upstream, the parking area for the Gorge Powerhouse is at Highway 20 mile 120.9 but there is no formal river access.
 
 ![Put in](./img/skagitputin.jpg)
 
 ## Ride
-Early on there is a small rapid called Goodell.  Afterwards you reach S Bends rapid, which is a series of three rapids and their size is based on flow. There is a small hole in the middle of the river towards the bottom of the rapid.
+Early on there is a small rapid called Goodell.  Afterwards you reach S Bends rapid, which is a series of three rapids and their size is based on flow. There is a small hole (which we can avoid or hit) in the middle of the river towards the bottom of the rapid.
 
 Otherwise, this is a scenice relaxing run.  Bring drinks.
 
