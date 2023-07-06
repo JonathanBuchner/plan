@@ -3,20 +3,32 @@
 # Skagit River
 
 ## Details
-Information | Details
-| :-- | :-- |
-Date | Saturday, July 8th 2023
-Meet Time | 8:45am (Ready to leave Park-and-Ride at 9AM)
-Meet Place | [Ash Way Park-and-Ride Lost](https://www.soundtransit.org/ride-with-us/parking/snohomish-county/ash-way-park-ride-lot) 
-Shopping |  [Safeway](https://local.safeway.com/safeway/wa/everett/520-128th-st-sw.html?utm_source=G&utm_medium=Maps&utm_campaign=G+Places) address:  520 128th St SW Everett, WA 9820
-River | Skagit 
-River Location | The Skagit river runs along highway 20 in the North Cascades.
-Section | [Section 2: Goodell Creek to Copper Creek](https://www.americanwhitewater.org/content/River/view/river-detail/2206/main) (Read about the trip on American Whitewater through this link)
-Level | Class III (But only one class III rapid.  Mostly flat water).
-Length | 8.5 miles (2+ hours)
-Gear  | [Gear list](https://github.com/JonathanBuchner/plan/blob/main/rafting/river-gear.md)
-Food | Optionally bring a snack.  Bring drinks, especially water.
-Drive | Park-and-Riday -> Safeway  -> Scout take out -> Scout S Bend rapid - > Arrive at put in.
+**Date** Saturday, July 8th 2023
+
+**Meet Time**:  8:45am (Ready to leave Park-and-Ride at 9AM)
+
+**Meet Place**:  [Ash Way Park-and-Ride Lost](https://www.soundtransit.org/ride-with-us/parking/snohomish-county/ash-way-park-ride-lot) 
+
+
+**Shopping**:   [Safeway](https://local.safeway.com/safeway/wa/everett/520-128th-st-sw.html?utm_source=G&utm_medium=Maps&utm_campaign=G+Places) address:  520 128th St SW Everett, WA 9820
+
+**River**:  Skagit 
+
+**River Location**:  The Skagit river runs along highway 20 in the North Cascades.
+
+**Section**:  [Section 2: Goodell Creek to Copper Creek](https://www.americanwhitewater.org/content/River/view/river-detail/2206/main) (Read about the trip on 
+
+**American**Whitewater through this link)
+
+**Level**:  Class III (But only one class III rapid.  Mostly flat water).
+
+**Length**:  8.5 miles (2+ hours)
+
+**Gear**:  [Gear list](https://github.com/JonathanBuchner/plan/blob/main/rafting/river-gear.md)
+
+**Food**:  Optionally bring a snack.  Bring drinks, especially water.
+
+**Drive**:  Park-and-Riday -> Safeway  -> Scout take out -> Scout S Bend rapid - > Arrive at put in.
 
 
 ## Where are we going? 
