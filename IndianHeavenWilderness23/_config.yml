@@ -1,0 +1,7 @@
+#Jekyll
+name: Indian Heaven Wilderness
+Description: Planning Blue Lake via Thomas Lake Trail 
+url: https://jonathanbuchner.github.io/plan/IndianHeavenWilderness23
+markdown: Kramdown
+plugins:
+- jekyll-remote-theme
