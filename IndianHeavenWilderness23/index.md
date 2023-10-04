@@ -34,5 +34,11 @@ For group food Jonathan and Ashley will bring:
 
 Each party is will figure out there own Breakfasts (including coffee etc.), lunch, and snacks.  Probably no lunch needed for hike out on Sunday.
 
-### Sites
+## Sites
 ![Camp sites](campsites.png)
+
+## Notes
+- I haven't done a lot of research, so reading over some trip reports and checking
+my information above would be helpful.
+- Looks like Saturday has the best weather for entire week.
+- Group gear, how we do food, meet time, etc. can be discussed and if you have a preference, lets do it.
