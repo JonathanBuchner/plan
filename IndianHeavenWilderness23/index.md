@@ -11,7 +11,7 @@
 | Day 2 | 3.5 mile hike out. |
 | Dates | Saturday, October 7th to Sunday, October 8th |
 | Parking pass | Northwest Forest Pass |
-| Permit | No permit required; self register at trail head, NOT a blue lake trail head. |
+| Permit | No permit required; self register at trail head. |
 
 ## Links
 WTA - [Blue Lake / Thomas Lake](https://www.wta.org/go-hiking/hikes/thomas-lake)
