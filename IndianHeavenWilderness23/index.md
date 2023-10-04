@@ -14,7 +14,7 @@
 | Permit | No permit required; self register at trail head, NOT a blue lake trail head. |
 
 ## Links
-WTA - [Blue Lake / Thomas Lake](https://www.wta.org/go-hiking/hikes/thomas-lake-1)
+WTA - [Blue Lake / Thomas Lake](https://www.wta.org/go-hiking/hikes/thomas-lake)
 - Remember that there are over 10 "Blue Lakes" in Washington.  This is the one in Indian Heaven Wilderness.  Blue lake used to have a 1.5 mile access through a CLOSED ROAD.  Make sure you get directions to the Thomas Lake Trailhead.
 
 
