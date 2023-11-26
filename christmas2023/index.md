@@ -30,22 +30,13 @@ It is ultimate outdoor and fitness electronic device (who would have thought App
 
 
 ## Puzzles / Activities for Christas Day
-### Covert instruments learn to lock pick set
+### Covert instruments learn lock picking bundle
 ![Alt text](image-3.png)
 Link: [LEARN LOCKPICKING BUNDLE](https://covertinstruments.com/collections/training-gear/products/learn-lockpicking-bundle)
 
 I have watched over 50 videos by the lock picking lawyer on youtube and lock picking turns out to be a 'fun sport', and something that can be done as someone watches TV or another activity.  This is a basic starter set as it contains the genesis set (basic pick tools) and a CI practice lock (the practice lock is actually six different locks that get more difficult). Others have found lock picking to be rather intriguing and relaxing puzzle solving activity.
 
 If it's available, the FNG for under 10 dollars would be a a replacement, but it doesn't actually teach you lock picking as the lock is an example of how locks work, not actual 'practice lock.'  I think I also could get by with just the genesis set and no practice lock.
-
-## Home / kitchen
-### TILLAGD 20-piece flatware set, black
-![Alt text](image.png)
-Link: [TILLAGD 20-piece flatware set, black](https://www.ikea.com/us/en/p/tillagd-20-piece-flatware-set-black-80424934/)
-
-I have this set and it's great.  I like the black color and the weight of the utensils.  I have 2 sets of these, so I have 8 of each utensil, but Ashley and I have found that having 12 of each would be nice because we keep running out of large forks and spoons.
-
-Please only get this exact item as to match the set we already have.
 
 ## Clothing
 Please only clothing that I request as I am not adding a new item to my wardrobe unless it's replacing something I already have.
@@ -76,30 +67,38 @@ Description is *one Lands End large white fitted no iron button down shirt.*
 I wear a white button down shirt to work every day.  I have 5 of these shirts and I would like to replace one that is getting old.
 
 
-### Smart wool underwear
+### Merino wool underwear
 ![Alt text](image-7.png)
 
 Link: [Men's Merino Boxer Brief](hhttps://www.smartwool.com/shop/mens-underwear/mens-merino-boxer-brief-sw016997?variationId=001)
 
 Merino wool underwear is amazing and not something I purchase for myself.  I linked to a smart boxer brief pair that I liked, but I am open to other brands and types.  I currently have 3 pairs of merino wool underwear which is enough for all of my outdoor / running pursuits...this isn't needed, but I love um.
 
+## Home / kitchen
+### TILLAGD 20-piece flatware set, black
+![Alt text](image.png)
+Link: [TILLAGD 20-piece flatware set, black](https://www.ikea.com/us/en/p/tillagd-20-piece-flatware-set-black-80424934/)
+
+I have this set and it's great.  I like the black color and the weight of the utensils.  I have 2 sets of these, so I have 8 of each utensil, but Ashley and I have found that having 12 of each would be nice because we keep running out of large forks and spoons.
+
+Please only get this exact item as to match the set we already have.
 
 ## Outdoor / Climbing / Smaller gifts
-These are interesting smaller items that I thought about trying, but have never purchased.  These items are mostly to have some lower cost 
+These are interesting smaller items that I thought about trying, but have never purchased.  These items are mostly to have some lower cost.
 
 
 ### Climbing skin Hand Repair Cream 
 ![Alt text](image-4.png)
 Link: [Climbing skin Hand Repair Cream](https://www.amazon.com/Climbskin-Hand-Cream-Protect-Regenerate/dp/B00HNA2YW2/ref=sr_1_51_sspa?hvadid=616989150413&hvdev=c&hvlocphy=9033316&hvnetw=g&hvqmt=e&hvrand=3056636224605724516&hvtargid=kwd-17671073650&hydadcr=15280_13597137&keywords=gifts+for+rock+climbers&qid=1700958322&sr=8-51-spons&sp_csd=d2lkZ2V0TmFtZT1zcF9idGY&psc=1)
 
-I have been wanting to try a hand repair cream for a while.  I have never tried this one, but I have heard good things about this one.  I'm open to trying any hand repair cream that someone has been well reviewed.
+I have been wanting to try a hand repair cream for a while.  I have never tried this one, but I have heard good things about this one.  I'm open to trying any hand repair cream that someone has been well reviewed.  Mostly on hear as I searched or a low cost item I've wanted to try.
 
 ### Climbing mug 
 ![Alt text](image-5.png)
 
 Links: NONE
 
-I have been thinking about getting a glass for liquids for work and one with a climbing hold is a cute idea.
+I have been thinking about getting a glass for liquids for work and one with a climbing hold is a cute idea.  Mostly on hear as I searched or a low cost item I've wanted to try.
 
 ### Your favorite cocktail mixer and garnish
 ![Alt text](image-8.png)
