@@ -1,0 +1,7 @@
+#Jekyll
+name: Tieton Moon Party 2022
+Description: Planning Tieton Moon Party 2022. 
+url: https://jonathanbuchner.github.io/plan/moonparty/
+markdown: Kramdown
+plugins:
+- jekyll-remote-theme

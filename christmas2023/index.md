@@ -10,9 +10,9 @@ The one item I want for sure is the [LEARN LOCKPICKING BUNDLE](https://covertins
  After researching over the last month and consulting with many friends, I've decided I want 
  an Apple Ultra 2 watch. It serves as a phone replacement and is the ultimate outdoor watch. If it were under the tree for Christmas, I would like to pay for half of it (and would prefer it to something like cash so I can play with it on Christmas--I can even get cash on Christmas).  I am fine with this NOT being underneath the tree.
 
-It's only the Apple Watch Ultra 2 that meets my needs, as it also has a larger battery, making it a viable phone substitute. The Ultra has some different hardware a minimally bigger screen (4mm larger, which I wish were a bit smaller), but its doubled battery life allows it to function independent of an iPhone for an entire day.
+Only the Apple Watch Ultra 2 that meets my needs that meets my needs, as it has a larger battery, making it work for an entire day away from the phone. The Ultra has some different hardware a minimally bigger screen (4mm larger, which I wish were a bit smaller), but its doubled battery life allows it to function independent of an iPhone for the day.
 
-The watch features an incredibly scratch-resistant sapphire crystal display. I've seen numerous YouTube videos where people attempt to damage the screen. While it can get minor scratches, in most tests, the internal hardware and titanium outer shell break before the screen. The cost of the Series 9 Apple Watch jumps from $400 to $700 when you opt for the sapphire crystal screen, making the Ultra a hundred dollars more than the Series 9 model.  While one worries about phones breaking outside, the Apple Watch Ultra was intended for outdoor recreation.
+The watch features an incredibly scratch-resistant sapphire crystal display. I've seen numerous YouTube videos where people attempt to damage the screen. While it can get minor scratches, in most tests, the internal hardware and titanium outer shell break before a scratch on the screen! The cost of the Series 9 Apple Watch jumps from $400 to $700 when you opt for the sapphire crystal screen, making the Ultra a hundred dollars more than the Series 9 model.  While one worries about phones breaking outside, the Apple Watch Ultra was intended for outdoor recreation.
 
 Some of the outdoor features of the Ultra watch include:
 
@@ -26,7 +26,7 @@ Some of the outdoor features of the Ultra watch include:
 - Battery management features to extend battery life.
 - Other outdoor apps.
 
-It is ultimate outdoor and fitness electronic device (who would have thought Apple would be in this market for climbers and rafters), and I want to use it to potential replace a phone. While I don't need to sell my phone, I'm eager to try living without it and, ideally, avoid having to repurchase one.
+It is ultimate outdoor and fitness electronic device (who would have thought Apple would be in this market for climbers and rafters), and I want to use it to potentially replace a phone. While I don't need to sell my phone, I'm eager to try living without it and, ideally, avoid having to repurchase one.
 
 
 ## Puzzles / Activities for Christas Day
@@ -34,7 +34,7 @@ It is ultimate outdoor and fitness electronic device (who would have thought App
 ![Alt text](image-3.png)
 Link: [LEARN LOCKPICKING BUNDLE](https://covertinstruments.com/collections/training-gear/products/learn-lockpicking-bundle)
 
-I have watched over 50 videos by the lock picking lawyer on youtube and lock picking turns out to be a 'fun sport', and something that can be done as someone watches TV or another activity.  This is a basic starter set as it contains the genesis set (basic pick tools) and a CI practice lock (the practice lock is actually six different locks that get more difficult). I want it mostly as mindless activity to have around the house as others have found lock picking to be rather intriguing and relaxing.
+I have watched over 50 videos by the lock picking lawyer on youtube and lock picking turns out to be a 'fun sport', and something that can be done as someone watches TV or another activity.  This is a basic starter set as it contains the genesis set (basic pick tools) and a CI practice lock (the practice lock is actually six different locks that get more difficult). Others have found lock picking to be rather intriguing and relaxing puzzle solving activity.
 
 If it's available, the FNG for under 10 dollars would be a a replacement, but it doesn't actually teach you lock picking as the lock is an example of how locks work, not actual 'practice lock.'  I think I also could get by with just the genesis set and no practice lock.
 
@@ -53,17 +53,17 @@ Please only clothing that I request as I am not adding a new item to my wardrobe
 ### All–Conditions Card Pocket
 ![Alt text](image-9.png)
 
-My current wallet does not need replacement, yet, but I would like to downsize.  It's approach is creating a hard case and using elastic to hold the items and not individually separating each item with leather to keep is small. 
+My current wallet does not need replacing, yet, but I would like to downsize.  It's approach is creating a hard case and using elastic to hold the items and not individually separating each item with leather to keep it small. 
 
 This wallet has the advantage of attaching my keys to it, of which I want to carry some on the outside and other keys on the inside (I want a solution to combine my keys and wallet into one item).  It still has an option for carrying coins. Water proof / resistant. Fits in any pocket. High quality.
 
-I think this is super cool and it's going with a minimalist /EDC trend: how can I reduce the number of items and size of items I carry every day while still carrying the same functionality.
+I think this is super cool and it's going with a minimalist /EDC trend: how can I reduce the number of items and size of items I carry every day while still carrying the same functionality.  I've done a lot of research on wallets and landed on this one.
 
 ### Ease Performance Half Zip
 ![Alt text](image-1.png)
 Link: [Ease Performance Half Zip](https://vuoriclothing.com/products/ease-performance-half-zip-charcoal-heather?queryId=7eea00876f1ce87010f420dc7e7eb2ba&objectId=22965094318138)
 
-I received this item last year for Christmas and I love it as I can put of over my white button down and wear it to work.  I would like another one in a different color--so not blue.  I like the charcoal heather color. Side medium or large.
+I received this item last year for Christmas and I love it as I can put of over my white button down and wear it to work.  I would like another one in a different color--so not blue.  I like the charcoal heather color. Size medium or large.
 
 This is replacing a lighter weight pull over that is too small and has not held up.
 
@@ -81,7 +81,7 @@ I wear a white button down shirt to work every day.  I have 5 of these shirts an
 
 Link: [Men's Merino Boxer Brief](hhttps://www.smartwool.com/shop/mens-underwear/mens-merino-boxer-brief-sw016997?variationId=001)
 
-Merino wool underwear is amazing and not something I purchase for myself.  I linked to a smart boxer brief pair that I liked, but I am open to other brands and types.  I currently have 3 pairs of merino wool underwear.
+Merino wool underwear is amazing and not something I purchase for myself.  I linked to a smart boxer brief pair that I liked, but I am open to other brands and types.  I currently have 3 pairs of merino wool underwear which is enough for all of my outdoor / running pursuits...this isn't needed, but I love um.
 
 
 ## Outdoor / Climbing / Smaller gifts
